@@ -1,4 +1,5 @@
-Norht korean is hard
+North korean is hard
+Pavel is mean
 North Koreans are just misunderstood south koreans
 North korea best korea
 Kim Jong Un can score 18 hole in ones in 12 rounds
