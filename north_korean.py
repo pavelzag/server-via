@@ -1,1 +1,2 @@
-Norht korean is hard
+North korean is hard
+Pavel is mean
